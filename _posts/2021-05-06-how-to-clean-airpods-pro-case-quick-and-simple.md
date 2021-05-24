@@ -13,25 +13,26 @@ tags: howto
     </a>
 </p>
 
-[Over time](/problems), AirPods began to build up earwax, dust, grime, and debris... 
+[Over time](/problems), AirPods began to build up earwax, dust, grime, and debris. 
 
-The appearance is not great, and very unhygienic... 
+The appearance is not great, and very unhygienic. 
 
-Without regular cleaning, your AirPods can become a safe haven for bacteria that can cause ear infections...
+Without regular cleaning, your AirPods can become a safe haven for bacteria that can cause ear infections.
 
-*   **If this gets too bad, it can even affect your audio quality...** 
+*   **If this gets too bad, it can even affect your audio quality** 
 
-Accumulated foreign matter can block the AirPods speakers, giving them a muffled sound...
+Accumulated foreign matter can block the AirPods speakers, giving them a muffled sound.
 
-*   **Fortunately, cleaning them [isn't difficult](/problems) at all...** 
+*   **Fortunately, cleaning them [isn't difficult](/problems) at all** 
 
-As you will know, you can clean your AirPods (and their case) with [minimal effort](/problems)...
+As you will know, you can clean your AirPods (and their case) with [minimal effort](/problems).
 
-*   **Here's how to clean your Airpods Pro and make them as good as new again in no time...**
+*   **Here's how to clean your Airpods Pro and make them as good as new again in no time**
 
 <iframe class="video" src="https://www.youtube.com/embed/Gd3vBrqGg9g" title="How to Clean Airpods Pro Case: Quick and Simple" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
-*   **Thinking about getting Airpods Pro?**
+
+**Thinking about getting Airpods Pro?**
 
 Check this on Amazon...
 
