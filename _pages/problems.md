@@ -42,10 +42,3 @@ permalink: /problems/
     </a>
 </h3>
 
-<hr><br>
-
-<p align="center">
-    <a href="https://voluum.com/?rt=ssZ9gS%2FGUWUbuuGCUzSCu2UqA496YJEsegFgb%2FqQYHc2YxTZROLXfYJU676iU1V3" target="_blank" rel="nofollow">
-        <img src="{{site.baseurl}}/images/affiliate-ads-tracker.jpg" alt="ads tracker affiliate marketing" title="ads tracker affiliate marketing" width="600" />
-    </a>
-</p>
