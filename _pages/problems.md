@@ -8,7 +8,7 @@ permalink: /problems/
 
 <h2 align="center" style="color: green;">
     <a href="http://bit.ly/healthylosefat" target="_blank" rel="nofollow">
-        How to get skinny fast without starving yourself?
+        How to get skinny fast without starving yourself?...
     </a>
 </h2>
 
@@ -19,7 +19,13 @@ permalink: /problems/
 </p>
 
 <h3 align="center" >
-    <a href="http://bit.ly/healthylosefat" target="_blank" rel="nofollow">And, How to strip off body fat like clockwork, while still allowing you to eat tasty meals like ribeye steak with roasted garlic and butter?
+    <a href="http://bit.ly/healthylosefat" target="_blank" rel="nofollow">And, How to strip off body fat like clockwork, while still allowing you to eat tasty meals like ribeye steak with roasted garlic and butter?...
+    </a>
+</h3>
+
+<h3 align="center" >
+    <a href="http://bit.ly/healthylosefat" target="_blank" rel="nofollow" style="color: red;">
+        <u>SHOW ME HOW!</u>
     </a>
 </h3>
 
@@ -27,7 +33,7 @@ permalink: /problems/
 
 <h2 align="center" style="color: green;">
     <a href="http://bit.ly/howtosellphoto" target="_blank" rel="nofollow">
-     How to make money using your photography skill? and How to generate more cash by selling your photos? 
+     How to make money using your photography skill? and How to generate more cash by selling your photos?... 
     </a>
 </h2>
 
@@ -38,7 +44,12 @@ permalink: /problems/
 </p>
 
 <h3 align="center" >
-    <a href="http://bit.ly/howtosellphoto" target="_blank" rel="nofollow">PhotoJobz will show you how to get paid for it without being stuck in traffic and without your Boss telling you what to do!
+    <a href="http://bit.ly/howtosellphoto" target="_blank" rel="nofollow">PhotoJobz will show you how to get paid for it without being stuck in traffic and without your Boss telling you what to do...
     </a>
 </h3>
 
+<h3 align="center"  >
+    <a href="http://bit.ly/howtosellphoto" target="_blank" rel="nofollow" style="color: red;">
+        <u>SHOW ME HOW!</u>
+    </a>
+</h3>
