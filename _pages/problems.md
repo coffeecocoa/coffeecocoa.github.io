@@ -53,3 +53,24 @@ permalink: /problems/
         <u>SHOW ME HOW!</u>
     </a>
 </h3>
+
+<hr><br>
+
+<h2 align="center" style="color: green;">
+    <a href="https://bit.ly/easyadstracking" target="_blank" rel="nofollow">
+      Voluum is one of the most reliable ad tracking programs in the market... 
+    </a>
+</h2>
+
+<iframe class="video" src="https://www.youtube.com/embed/ST9TxUer5PY" title="Voluum review" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+* Track all your advertising campaigns with the fastest redirect...
+* Analyze key data on every visit, click and conversion for actionable insights...
+* Optimize your ad performance with AI-powered tools...
+* Scale your affiliate business with a reliable infrastructure...
+
+<h3 align="center" >
+    <a href="https://bit.ly/easyadstracking" target="_blank" rel="nofollow" style="color: red;">
+      <u>Check Out Voluum Now At 45% Discount Rate...</u>
+    </a>
+</h3>
