@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Problems and Solutions About Your...
+title: Problems and Solutions About Your
 description: So, how can i find solutions to my challenges and problems?
 permalink: /problems/
 ---
