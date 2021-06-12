@@ -13,7 +13,7 @@ permalink: /social-media-jobs-remote/
 </p>
 
 
-<h3 align="center" style="color: green;">What jobs can be done remotely?</h3>
+<h3 align="center" style="color: green;">What jobs can be done remotely?...</h3>
 
 **Social Media Jobs Remote** - In the current digital era of information, there are many new professional fields that have... 
 
@@ -24,10 +24,10 @@ This profession is present as more and more social media platforms are used as o
 
 You've certainly seen social media specialist job vacancies or directly refer specifically to social media admins passing by on the internet, right?... 
 
-This one job is quite popular, especially among [Gen Z](/nintendo-switch-review-and-price/)...
+This one job is quite popular, especially among [Gen Z...](/nintendo-switch-review-and-price/)
  
 
-Then, what comes to your mind about the duties and responsibilities of this [job position?](/social-media-jobs-remote/)... 
+Then, what comes to your mind about the duties and responsibilities of this [job position?...](/social-media-jobs-remote/) 
 
 Is it limited to publishing content to social media brands or companies?... 
 
