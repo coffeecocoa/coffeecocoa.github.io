@@ -1,6 +1,6 @@
 ---
 layout: page
-title: High Paying Social Media Jobs Remote Work From Home
+title: Top 8 High Paying Social Media Jobs Remote Work From Home
 description: There are currently positions open worldwide for people just like you to begin work on Social media jobs remote such as...
 permalink: /social-media-jobs-remote/
 ---

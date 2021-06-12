@@ -8,7 +8,7 @@ tags: review
 ---
 
 
-<span style="color: green;"><b>Friday Night Funkin Free Download for Windows PC...</b></span>
+<h4 style="color: green; " align="center">Friday Night Funkin Free Download for Windows PC...</h4>
 
 <p align="center">
     <a href="http://fasterfiles.net/funkin64bit" target="_blank" rel="nofollow">
