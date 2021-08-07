@@ -38,16 +38,16 @@ There are currently positions open worldwide for people just like you to begin w
 
 * <a href="http://bit.ly/facebooktwitterjobs" target="_blank" rel="nofollow"><strong><u>Facebook Social Media Manager – $1050 per week, Remote</u></strong></a>
 
-* <a href="https://jobs.lever.co/food52/747ef4de-a425-4332-8930-fa44507b15f4" target="_blank" rel="nofollow"><strong><u>Social Media Associate – Food52, REMOTE </u></strong></a>
+
 
 * <a href="http://bit.ly/facebooktwitterjobs" target="_blank" rel="nofollow"><strong><u>Twitter Social Media Manager – $200 per week, Part Time, Remote</u></strong></a>
 
-* <a href="https://screenrant.applytojob.com/apply/DYbzoP15qj/Social-Media-Comment-Moderator" target="_blank" rel="nofollow"><strong><u>Social Media Comment Moderator – Screen Rant, Remote</u></strong></a>
+
 
 * <a href="http://bit.ly/facebooktwitterjobs" target="_blank" rel="nofollow"><strong><u>Facebook Groups and Contests Manager – $27 per hour, Remote</u></strong></a>
 
-* <a href="https://jobs.lever.co/amyris/818cc2f6-e208-4cee-8400-9fce5a1ad8b4" target="_blank" rel="nofollow"><strong><u>Social Media Associate Contractor – Amyris, Remote</u></strong></a>
 
-* <a href="https://boards.greenhouse.io/buzzfeed/jobs/3173585?gh_jid=3173585&gh_src=4d07dbc71us" target="_blank" rel="nofollow"><strong><u>Social Media Fellow, Commerce – BuzzFeed, New York, Remote</u></strong></a>
+
+
 
 * <a href="http://bit.ly/facebooktwitterjobs" target="_blank" rel="nofollow"><strong><u>Social Media Specialist – $25 per hour, Remote</u></strong></a>
